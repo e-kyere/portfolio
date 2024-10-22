@@ -1,4 +1,3 @@
-# Graduate Student | erickyeretawiah@gmail.com | Accra, Ghana | +233204774473 
 
 # OBJECTIVE 
 Aspiring to pursue graduate studies in Transportation Engineering, focusing on sustainable urban infrastructure. 
